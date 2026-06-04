@@ -1,4 +1,4 @@
-#  
+#  3008 Scripts professional offers the most advanced 3008 Script, with custom skins and auto-farm. Perfect for dominating any match.
 
 
 
